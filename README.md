@@ -1,1 +1,2 @@
-# Karatu-Safari-Camp-Lodge
+# Karatu Safari Camp Lodge
+Welcome to Karatu Safari Camp Lodge , a family owned property that was established in 2018 by Mr. Dunstan and his family. With over 10 years of experience working in hospitality industry in Tanzania, including as chief at Serengeti Safari Camp, Kilimanjaro Hostel, and New Arusha hotel, as well as an operation manager at Nomad Safaris Tanzania, Mr. Dunstan has a wealth of knowledge and expertise that he brings to his dream of owning and running a lodge.
